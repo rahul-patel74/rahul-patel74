@@ -15,7 +15,7 @@
 
 ### 🌐 Connect with Me  
 📧 **Email:** [rpstranger74@gmail.com](mailto:rpstranger74@gmail.com)  
-💼 **LinkedIn:** [linkedin.com/in/rahul-patel-6238a238b](https://www.linkedin.com/in/rahul-patel-6238a238b)  
+💼 **LinkedIn:** [linkedin.com/in/rahul-patel74](https://www.linkedin.com/in/rahul-patel74)  
 💻 **Portfolio:** *coming soon...*  
 
 ---
